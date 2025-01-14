@@ -1,0 +1,1 @@
+Sou iniciante em Phyton, por isso mesmo tendo experiencia em programação irei fazer do 0 ate o avançado.
